@@ -36,7 +36,7 @@
 
 点击访问：<a href="https://hls-27.pages.dev/">热门黑料社</a>
 
-点击访问：<a href="https://heiliaochuansong01.pages.dev/>黑料传送门线路</a>
+点击访问：<a href="https://heiliaochuansong01.pages.dev/">黑料传送门线路</a>
 
 点击访问：<a href="https://heiliao387.pages.dev/">51吃瓜网</a>
 
